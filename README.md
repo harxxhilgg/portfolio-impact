@@ -1,1 +1,1 @@
-# This is my FUCKING PORTFOLIO
+# This is my PORTFOLIO.
